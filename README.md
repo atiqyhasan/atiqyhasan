@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on cloud projects.
 - 📫 How to reach me: atiq.y.hasan@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Huge sports fan! 
+- ⚡ Fun fact: Diehard Houston Rockets and ChelseaFC fan! 
 
 <!---
 atiqyhasan/atiqyhasan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
